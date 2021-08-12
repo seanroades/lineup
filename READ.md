@@ -1,0 +1,1 @@
+What if a portfolio website didn't just say Hi, my name's _____ 0_o lol i actually do that too but I like this stuff
